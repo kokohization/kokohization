@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @kokohization
 - 👀 I’m interested in learning
-- 🌱 I’m currently learning how to love like you did!
+- 🌱 I’m currently learning how to CODE!
 
 <!---
 i dont really understand how to code, but coding always make me jakhdflkjhasdjfkh. iwanted to learn more about coding because why not?
